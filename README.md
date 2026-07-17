@@ -1,3 +1,3 @@
-Short URL for use in IPTV players
+𝙎𝙝𝙤𝙧𝙩 𝙐𝙍𝙇 𝙛𝙤𝙧 𝙪𝙨𝙚 𝙞𝙣 𝙄𝙋𝙏𝙑 𝙥𝙡𝙖𝙮𝙚𝙧𝙨
 
 https://bit.ly/452xXXE
